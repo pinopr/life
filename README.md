@@ -34,3 +34,13 @@ During such times one should ask oneself if the idea is really a shortcut in the
 
 ### Inspiration
 the first time I heard this quote was in the Naruto anime.
+
+## Don't enable bad behaviour
+By enabling people to behave badly you are reinforcing the idea that what they are doing is correct. To help them you have to break the reinforcement cycle.
+
+### Inspiration
+This is upon contemplation after watching "Welcome to the NHK"
+
+### Examples
+
+1. Going beyond your responsibility to do the work for your family instead of them stepping up and learning to do it for themselves.
