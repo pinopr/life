@@ -1,6 +1,13 @@
 # Life Philosophies
 A documentation of philosophies of life that I've come to live by as per my experiences over the years
 
+## Fools learn from their experiences, while the wise learn from history
+Another version: fools learn from their own mistakes, while the wise learn from the mistakes of others
+
+The responsibility of the inexperienced is to listen to the experience and try to salvage the nuggets of wisdom they can apply in their life.
+
+You only have one life, use it wisely.
+
 ## Choose the path of least regret
 You will encounter many instances in life where there is no good choice.
 In these instances choose the path which would lead to the least amount of regret in the future.
@@ -15,7 +22,7 @@ So it seemed pretty obvious from early on that regret is important to manage so 
 1. Choosing between jobs: if you are in this privileged position, choose the one you will regret taking least.
 
 ## Hope for the best but plan for the worst
-The hope propels you forward and the planning. This is not a nihilist position, on the contrary it is about doing more to get to the best outcome.
+The hope propels you forward and the planning ensures you're in the best position possible for any unforeseen occurrences. This is not a nihilist position, on the contrary it is about doing more to get to the best outcome.
 
 ### Inspiration
 I don't really remember where I picked this up
