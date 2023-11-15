@@ -39,8 +39,22 @@ the first time I heard this quote was in the Naruto anime.
 By enabling people to behave badly you are reinforcing the idea that what they are doing is correct. To help them you have to break the reinforcement cycle.
 
 ### Inspiration
-This is upon contemplation after watching "Welcome to the NHK"
+This is upon contemplation after watching "Welcome to the NHK". In all honestly the moral of the story didn't immediately click for me and I read around a bit and thought about it a whole bunch before I realised how valuable and prevalent the applications of this philosophy is in real life.
 
 ### Examples
 
 1. Going beyond your responsibility to do the work for your family instead of them stepping up and learning to do it for themselves.
+
+
+## The only answer to fools is silence
+Thankfully I learnt this one at a young age and avoided a lot of unnecessary conflict.
+
+It's pretty simple, if you think someone is being an idiot then you don't need to respond, no need to have the last say, swallow your ego and avoid being a bigger idiot by staying silent.
+
+It makes sense really. If you're dealing with an idiot chances are they'll do irrational things to hurt you. So the sooner you disengage the better.
+
+### Inspiration
+This is a famous Persian proverb:
+> جواب ابلهان خاموشیست
+
+
