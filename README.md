@@ -57,4 +57,23 @@ It makes sense really. If you're dealing with an idiot chances are they'll do ir
 This is a famous Persian proverb:
 > جواب ابلهان خاموشیست
 
+## Nothing is worth going the extra mile
+Wanting something really badly, stretching yourself to get it, putting in extra effort beyond your normal threshold... you get the idea. All of these are bound to result in disappointment in the future. Because no material thing in this world is ever worth it really when you sit down and think about it.
+
+This isn't about working hard, or achieving life goals, this is more about valuing something beyond its worth and as a result bending over backwards to get it. So the real message here is to be mindful of the real value of things.
+
+Perhaps this is not a good philosophy to follow when you're young as it may dampen your drive for excellence. But then again young people are more perceptible to putting too much value on things that are worthless.
+
+The only exception I would consider to this rule is striving for the afterlife. Though
+1. This may be a side effect of writing off this life.
+2. This mentality also taints any optimism about the afterlife.
+
+### Inspiration
+After being disappointed in material achievements in life countless times this lesson comes naturally.
+
+The 4th episode of the anime "Odd Taxi" does a good job of creating a visual story around this philosophy.
+
+### Examples
+1. Simping: there is nothing more disappointing in life than humans and relationships.
+2. Getting at that newest pleasure (toy/gadget/game/accessory/etc.) is bound to become underwhelming once you've got your hands on it for a little while.
 
