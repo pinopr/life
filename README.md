@@ -57,6 +57,10 @@ It makes sense really. If you're dealing with an idiot chances are they'll do ir
 This is a famous Persian proverb:
 > جواب ابلهان خاموشیست
 
+### Examples
+This really shouldn't need examples, since anyone you interact with will say foolish things at some point, your job is to recognise it, not get emotional, swallow your ego and stay silent.
+
+
 ## Nothing is worth going the extra mile
 Wanting something really badly, stretching yourself to get it, putting in extra effort beyond your normal threshold... you get the idea. All of these are bound to result in disappointment in the future. Because no material thing in this world is ever worth it really when you sit down and think about it.
 
@@ -77,3 +81,19 @@ The 4th episode of the anime "Odd Taxi" does a good job of creating a visual sto
 1. Simping: there is nothing more disappointing in life than humans and relationships.
 2. Getting at that newest pleasure (toy/gadget/game/accessory/etc.) is bound to become underwhelming once you've got your hands on it for a little while.
 
+
+## Live life at your own pace
+You will find many instances in life where it seems it's a competition and you must strive to become a winner. There might be many "logical" reasons for you to think this such as peer pressure, societal norms, family, colleagues, your ego, your connections and relationships. In these instances take a moment to reflect if it really is an existential crisis. What would happen if you didn't win that race? You might suffer some social discomfort but would that be more than the self inflicted suffering of struggling to live life at a pace that you're not comfortable? And all these people you're trying to save face in front of, are they really worth it? How many times do you have to become enemies with your best friends before you learn these bonds are fragile and worthless? Well maybe worthless is an exaggeration but it's about attributing the right value, and point being that we often over value. So save yourself a lot of headache in life by taking it at your own pace rather than the pace others would like you to live it. After all there's nothing worth rushing for at the end of it and it's more about the journey.
+
+Sometime life demands that you live at a pace you're not comfortable with, such as times of hardship. You must recognise these too and strive to do your best with the hope they tomorrow will be easier.
+
+But for the most part, difficulties in life are self inflicted.
+
+### Inspiration
+This is the direct or secondary theme in many anime, which explore this topic in different depths. I don't have a good one on the top of my head currently but if you search for it I'm sure you'll find some because it's pretty common.
+
+Jungle book's "bare necessities"
+
+### Examples
+1. Rushing to finish a task, always thinking about the next task rather than focusing on the current one.
+2. Becoming first in exams/competitions. Education is important and everything but so what if you don't become first? At the end of the day it's not the cause of a better life.
